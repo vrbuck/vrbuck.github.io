@@ -1,0 +1,6 @@
+---
+published: true
+title: Qualcomm issued augmented reality the iOS Platform SDK
+layout: post
+---
+Following the landing after the Android platform, Qualcomm promises again, augmented reality SDK released the iOS platform. The SDK helps developers to more easily in real and virtual images (such as through a variety of convenient device on the camera and the camera captures images) a perfect integration. [OtterBox case for iPhone 6 Plus](http://cooliphonecase8.blogspot.com/2016/03/because-of-their-mistakes-and-we-see.html)[![Alt OtterBox iPhone 6 Plus Case](http://www.awacase.com/images/large/i6plus/otterbox_plus_i6P2304_lrg.jpg)](http://www.awacase.com/otterbox-defender-iphone-6-plus-case-purple-blue-p-10262.html)![Alt Qualcomm issued augmented reality the iOS Platform SDK](https://c2.staticflickr.com/2/1713/26029757786_301daee8e4.jpg)2025 votesTesla Model s-P85D\rP85D Tesla MODEL s is Tesla sells cars in the fastest and most expensive, in terms of appearance and the remaining few models did not much change, the main change is to drive and battery capacity. MODEL s-P85D, 691 peak horsepower BHP, four wheel drive, 0-96 km/h in 3.2 seconds. [OtterBox iPhone 6 Plus Case](http://www.awacase.com/otterbox-defender-iphone-6-plus-case-purple-blue-p-10262.html)\rView details of the voting >>
